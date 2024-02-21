@@ -5,6 +5,12 @@ Explain the strengths and weaknesses of
 composite monarchies, according to
 Elliott.
 
+Note: this essay focuses mainly on the
+_aeque principaliter_ model of composite
+states; the version in which subject
+states still retain their national
+identity.
+
 ## Strengths
 - Concentration of Power gives you an
   advantage in self-defense.
