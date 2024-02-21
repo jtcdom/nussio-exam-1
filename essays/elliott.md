@@ -93,7 +93,7 @@ identity.
   based in less free states.
 
 4. Conclusion
-Thus, 
+- Thus, 
 - Composite states give the ruler
   increased prestige, wealth, and power.
 - Because the king cannot be present in
