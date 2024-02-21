@@ -53,13 +53,15 @@ past.
   "jumping to what he doesn't know," but
   rather as moving step by step to his
   goal.
+- ^ this is probably not what the
+  question wants.
 
 ## Rejection of the Past
 - Voltaire demonstrates an obvious
   dislike for the Greek philosophers,
-  calling Greece the "Infant Seat of art
+  calling Greece the "infant seat of art
   and of errors." He hates the
-  "opressive" systems that ruled England
+  "oppressive" systems that ruled England
   in the past.
 - In "On the Lord Bacon" he says he
   thinks substantial forms, etc, are
