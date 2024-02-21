@@ -71,7 +71,7 @@ attacks on Catholicism. Brutally
 defeated by the Revolution.
 
 ## Revolutionary Commune
-- Also known as the Paris Commune.
+Also known as the Paris Commune.
 Revolutionary government of Paris that
 took over from the National Assembly and
 began the Reign of Terror. Largely led
